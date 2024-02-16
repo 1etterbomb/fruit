@@ -1,2 +1,2 @@
 # fruit
-hi
+this repo is for RANDOM BULLSHIT.
